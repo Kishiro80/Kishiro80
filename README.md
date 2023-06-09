@@ -4,6 +4,9 @@
 - 💞️ I’m looking to collaborate on a project that could allow me to grow
 - 📫 I am reachable through my email zahiruddinjamal@gmail.com
 
-ps: im still new, please be kind. 
+When learning, act like you dont know anything.
+When hustling, fake it till you make it.
 
- 
+Lets Hustle.
+
+Btw, I love beautiful and complex algorithm
