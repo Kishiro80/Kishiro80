@@ -12,7 +12,11 @@ Lets Hustle.
 Btw, I love beautiful and complex algorithm
 
 I collect nice website account like thanos 
+
 Polywork: https://www.polywork.com/meowruddin
+
 Bento: https://bento.me/zahir-jamal
+
 SubStack: https://meowruddin.substack.com/
+
 
